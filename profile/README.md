@@ -4,7 +4,8 @@
 
 很可惜这里没有我的丑照&帅照
 
-我喜欢写博客，这是我的博客地址:https://www.cnblogs.com/CNLayton/![Snipaste_2022-01-01_20-50-05](readme.assets/Snipaste_2022-01-01_20-50-05.png)
+我喜欢写博客，这是我的博客地址:https://www.cnblogs.com/CNLayton/
+![Snipaste_2022-01-01_20-50-05](readme.assets/Snipaste_2022-01-01_20-50-05.png)
 
 你可以在随笔分类里查看我写的不同种类的博客
 
